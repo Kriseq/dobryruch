@@ -10,6 +10,9 @@ https://ddwloclawek.pl/pl/910_wybory/57150_posel-z-naszego-regionu-zostal-szefem
 To może być Dobry Ruch [FELIETON]
 https://pozatorun.pl/felietony/to-moze-byc-dobry-ruch-felieton/
 
+Rozmowa o polityce z przedstawicielami nowej partii - Dobry Ruch
+https://radiofama.com.pl/publicystyka/rozmowa-o-polityce-z-przedstawicielami-nowej-partii-dobry-ruch
+
 ## 26 kwietnia 2023
 
 Radio Fama wywiad z Dobry Ruch.
@@ -44,6 +47,9 @@ https://www.wprost.pl/tylko-u-nas/11189548/powstala-nowa-partia-polityczna-ma-ju
 
 Nowa partia polityczna zapowiada start w jesiennych wyborach. Jej reprezentant już jest w Sejmie
 https://wiadomosci.gazeta.pl/wiadomosci/7,114884,29689106,nowa-partia-polityczna-zapowiada-start-w-jesiennych-wyborach.html
+
+Powstała nowa partia polityczna. Ma już reprezentanta w Sejmie
+https://www.msn.com/pl-pl/wiadomosci/other/powsta%C5%82a-nowa-partia-polityczna-ma-ju%C5%BC-reprezentanta-w-sejmie/ar-AA1aaMJJ
 
 ## 21 kwietnia 2023
 

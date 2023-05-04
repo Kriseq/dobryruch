@@ -1,5 +1,15 @@
 # Media o nas
 
+## 2 maja 2023
+
+Poseł z naszego regionu został szefem partii. "Nie chcemy być typową partią polityczną"
+https://ddwloclawek.pl/pl/910_wybory/57150_posel-z-naszego-regionu-zostal-szefem-partii-nie-chcemy-byc-typowa-partia.html
+
+## 28 kwietnia 2023
+
+To może być Dobry Ruch [FELIETON]
+https://pozatorun.pl/felietony/to-moze-byc-dobry-ruch-felieton/
+
 ## 26 kwietnia 2023
 
 Radio Fama wywiad z Dobry Ruch.
